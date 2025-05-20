@@ -1,1 +1,1 @@
-Qyky eshte nje read me
+Qeky eshte nje read me
